@@ -5,4 +5,4 @@
 - 📫 How to reach me: idk
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I don't like cheese
-Side note: I don't value myself that well and many people have looked at me as weird and annoying. Please be kind to me!
+- Side note: I don't value myself that well and many people have looked at me as weird and annoying. Please be kind to me!
